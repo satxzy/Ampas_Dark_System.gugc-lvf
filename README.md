@@ -1,1 +1,1 @@
-# Ampas_Dark_System.gugc-lvf
+Crack By @yatimitu123 Github Ini Telah Diawasi Oleh Dark
